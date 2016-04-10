@@ -1,5 +1,6 @@
 ---    
-layout: post  
+layout: post   
+title: 欢迎来到歧路花园   
 ---        
  
 
