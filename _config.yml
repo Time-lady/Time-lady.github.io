@@ -3,7 +3,7 @@
 title: 歧路花园 # Title of your site
 email: ximenggougou@hotmail.com # Your contant email
 
-description: > # this means to ignore newlines until "baseurl:"
+description: 自由开放，回忆整理，成长记录，学习分享> # this means to ignore newlines until "baseurl:"
   Write an awesome description for your new site here. You can edit this
   line in _config.yml. It will appear in your document head meta (for
   Google search results) and in your feed.xml site description.
