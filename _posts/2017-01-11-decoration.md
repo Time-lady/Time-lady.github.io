@@ -95,10 +95,10 @@
 * 阳台
 地板做防腐木的漂亮，窗帘也可以挂到阳台很大气的。有时候多看买家秀找灵感，多借鉴。不要晾衣杆，有落地的晾衣架不用的时候收起来。
 
-![130.jpg](http://upload-images.jianshu.io/upload_images/254062-240539d4ddaf8214.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![130.jpg](http://upload-images.jianshu.io/upload_images/254062-240539d4ddaf8214.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)  
 
 
-*餐桌椅
+* 餐桌椅
 
 实木或者大理石都是不错的选择。
 
@@ -107,7 +107,7 @@
 ![160.jpeg](http://upload-images.jianshu.io/upload_images/254062-179cdd92fd05ba9e.jpeg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 
-*茶几
+* 茶几
 展示家具不需要有太多的累赘收纳功能，看起来笨重
 [这家的茶几平价样式多](https://detail.tmall.com/item.htm?spm=a1z10.5-b.w4011-13670242576.53.YwkpXT&id=533943346980&rn=df8fa2084764afd03f3f80c40bc2d711&abbucket=1&sku_properties=29112:97926)
 
@@ -171,10 +171,12 @@ https://cse.google.com/cse/home?cx=013876887682380732982:hgcokny4oxu&hl=zh-CN
 
 宜家毕利书柜就不错  
   
-人体工程座椅一定要有一把，台湾保友金卓入门款可以考虑```  
+人体工程座椅一定要有一把，台湾保友金卓入门款可以考虑
+```  
 
 
 ### 后记  
+
 砸墙，尺寸老妈亲自监督划线，阳台不放洗衣机了。墙体垃圾，封阳台的师傅帮忙运走了。不过因为砸墙最后还是被物业讹走500押金。改水电8000，加了好多开关插座。一共60多个。我数了数老房子才30多个，新房多了一倍。厨房的水把原来走地下的费了，走的屋顶。卫生间后悔马桶没走热水，妇洗器没法冷热了，只能单冷。厨房空间太小扩了30cm往外。感觉还是小。要是扩50cm就好了。一进门的梁上留了灯位，开关墙侧面顺手控制不错。餐厅灯在吧台下就近控制顺手。网线新扯的原来木有网线。两个屋都扯了网线。阳台留了两个灯位。本来阳台留有插座，后来工长给忘记了，也就没再补。主卧做了双控。浴室地漏选的大排量的下水快，可是铜的盖子很容易生锈啊。厨房下水只好走明管了比较不舒服。烟道改成下排了防止上升过程中烟气扩散。  
 
 ***  
@@ -188,11 +190,12 @@ https://cse.google.com/cse/home?cx=013876887682380732982:hgcokny4oxu&hl=zh-CN
 ### 参考知乎
 ^^^^其实看这一个收藏就够了^^^^  
 [为新家做准备](https://www.zhihu.com/collection/40193589)  
-^^^^     ^^^^^^^     ^^^^
+^^^^     ^^^^^^^     ^^^^  
 [国内有哪些独立实木家具设计品牌？](https://www.zhihu.com/question/21340969)   
 [家庭装修时需考虑的人体工程尺寸有哪些？](https://www.zhihu.com/question/25100625)  
 ^^^^^  ^^^^  ^^^^  ^^^^  ^^^^  ^^^^  ^^^^  ^^^^
 ### 已买过的宝贝  
 [附上购物清单](http://www.one-tab.com/page/Dy6YcBrlTSKSnCKaiwSABw)  
 [补充店铺宝贝](http://www.one-tab.com/page/7E47989hTR2sjYey6tu2hg)  
+
 ![购物清单.jpeg](http://upload-images.jianshu.io/upload_images/254062-d4b3e2de4654d24a.jpeg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)  
