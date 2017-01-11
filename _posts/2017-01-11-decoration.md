@@ -157,19 +157,19 @@ https://cse.google.com/cse/home?cx=013876887682380732982:hgcokny4oxu&hl=zh-CN
 纯色的针织布料或者纯棉，冬天植物羊绒贡品丝绒，夏天天丝或丝绸。
 
 * 装饰画选择
-[抽象画，看不懂最好](https://yidalijiaju.tmall.com/search.htm?search=y)
+[抽象画，看不懂最好](https://yidalijiaju.tmall.com/search.htm?search=y)  
 荣宝斋的微信公众号也天天有拍卖0元拍。买一幅有收藏价值的画。
 
-### tips
-``` 厨房灯要够亮
-30*60的led集成吊顶嵌入灯可以满足
+### tips  
+``` 厨房灯要够亮  
+30*60的led集成吊顶嵌入灯可以满足  
 一般油烟机都有灯  
 
-瓷砖到边的时候切两块大半块凑整而不是留一个窄边，难看
+瓷砖到边的时候切两块大半块凑整而不是留一个窄边，难看  
 
-能用不锈钢条封边的地方都封上收口，好打理以后省事儿了不要留卫生死角。
+能用不锈钢条封边的地方都封上收口，好打理以后省事儿了不要留卫生死角。  
 
-宜家毕利书柜就不错
+宜家毕利书柜就不错  
   
 人体工程座椅一定要有一把，台湾保友金卓入门款可以考虑```  
 
@@ -177,20 +177,20 @@ https://cse.google.com/cse/home?cx=013876887682380732982:hgcokny4oxu&hl=zh-CN
 ### 后记  
 砸墙，尺寸老妈亲自监督划线，阳台不放洗衣机了。墙体垃圾，封阳台的师傅帮忙运走了。不过因为砸墙最后还是被物业讹走500押金。改水电8000，加了好多开关插座。一共60多个。我数了数老房子才30多个，新房多了一倍。厨房的水把原来走地下的费了，走的屋顶。卫生间后悔马桶没走热水，妇洗器没法冷热了，只能单冷。厨房空间太小扩了30cm往外。感觉还是小。要是扩50cm就好了。一进门的梁上留了灯位，开关墙侧面顺手控制不错。餐厅灯在吧台下就近控制顺手。网线新扯的原来木有网线。两个屋都扯了网线。阳台留了两个灯位。本来阳台留有插座，后来工长给忘记了，也就没再补。主卧做了双控。浴室地漏选的大排量的下水快，可是铜的盖子很容易生锈啊。厨房下水只好走明管了比较不舒服。烟道改成下排了防止上升过程中烟气扩散。
 ******
-### 豆瓣豆列
-[前辈的装修经验](https://www.douban.com/doulist/2924203/)
-[房子·书架·工作台·家居·设计](https://www.douban.com/doulist/1795422/)  
-[自己收藏的一个豆列](https://www.douban.com/doulist/37937431/)
-[心水的小物件](https://www.douban.com/doulist/29630654/?start=25&sort=time&sub_type=)
-[豆瓣东西的喜欢们](https://dongxi.douban.com/people/gougou928/like/shows)
+### 豆瓣豆列  
+[前辈的装修经验](https://www.douban.com/doulist/2924203/)  
+[房子·书架·工作台·家居·设计](https://www.douban.com/doulist/1795422/)    
+[自己收藏的一个豆列](https://www.douban.com/doulist/37937431/)  
+[心水的小物件](https://www.douban.com/doulist/29630654/?start=25&sort=time&sub_type=)  
+[豆瓣东西的喜欢们](https://dongxi.douban.com/people/gougou928/like/shows)  
 ### 参考知乎
-^^^^其实看这一个收藏就够了^^^^
-[为新家做准备](https://www.zhihu.com/collection/40193589)
+^^^^其实看这一个收藏就够了^^^^  
+[为新家做准备](https://www.zhihu.com/collection/40193589)  
 ^^^^     ^^^^^^^     ^^^^
-[国内有哪些独立实木家具设计品牌？](https://www.zhihu.com/question/21340969)
-[家庭装修时需考虑的人体工程尺寸有哪些？](https://www.zhihu.com/question/25100625)
+[国内有哪些独立实木家具设计品牌？](https://www.zhihu.com/question/21340969)   
+[家庭装修时需考虑的人体工程尺寸有哪些？](https://www.zhihu.com/question/25100625)  
 ^^^^^  ^^^^  ^^^^  ^^^^  ^^^^  ^^^^  ^^^^  ^^^^
-### 已买过的宝贝
-[附上购物清单](http://www.one-tab.com/page/Dy6YcBrlTSKSnCKaiwSABw)
-[补充店铺宝贝](http://www.one-tab.com/page/7E47989hTR2sjYey6tu2hg)
-![购物清单.jpeg](http://upload-images.jianshu.io/upload_images/254062-d4b3e2de4654d24a.jpeg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+### 已买过的宝贝  
+[附上购物清单](http://www.one-tab.com/page/Dy6YcBrlTSKSnCKaiwSABw)  
+[补充店铺宝贝](http://www.one-tab.com/page/7E47989hTR2sjYey6tu2hg)  
+![购物清单.jpeg](http://upload-images.jianshu.io/upload_images/254062-d4b3e2de4654d24a.jpeg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)  
