@@ -1,4 +1,4 @@
-![购物清单.jpeg](http://upload-images.jianshu.io/upload_images/254062-c942b76776e42ae7.jpeg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
 ## **买房到装修全过程**
 
 * 商住楼能不能买?
@@ -120,14 +120,10 @@
 不要以为交代过工头设计师就万事大吉了，最好去现场亲自把要求交代给工人。才不会出错。
 
 * 橱柜以及提前学习准备
-参考[适合中国人的现代厨房是什么样的？](https://www.zhihu.com/question/24114364)和豆瓣豆列https://www.douban.com/doulist/2924203/
-https://www.douban.com/doulist/1795422/
-由于太多了就不一一列出了，去谷歌搜豆列doulist能搜出来一大堆，豆瓣偏图片知乎偏文字。这个至少要提前一年准备，没事就翻翻。搜豆列点下面>>>>
-https://cse.google.com/cse/home?cx=013876887682380732982:hgcokny4oxu&hl=zh-CN
-
-![210.jpeg](http://upload-images.jianshu.io/upload_images/254062-9c8cc7e479783ef9.jpeg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
-
-![220.jpeg](http://upload-images.jianshu.io/upload_images/254062-2567487fce4f4cfb.jpeg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+参考[适合中国人的现代厨房是什么样的？](https://www.zhihu.com/question/24114364)和豆瓣豆列 <https://www.douban.com/doulist/2924203/>  
+<https://www.douban.com/doulist/1795422/>
+由于太多了就不一一列出了，去谷歌搜豆列doulist能搜出来一大堆，豆瓣偏图片知乎偏文字。这个至少要提前一年准备，没事就翻翻。  
+[搜豆列点这里>>>>](https://cse.google.com/cse/home?cx=013876887682380732982:hgcokny4oxu&hl=zh-CN)
 
 
 * 油烟机打火灶
@@ -202,5 +198,3 @@ https://cse.google.com/cse/home?cx=013876887682380732982:hgcokny4oxu&hl=zh-CN
 ### 已买过的宝贝  
 [附上购物清单](http://www.one-tab.com/page/Dy6YcBrlTSKSnCKaiwSABw)  
 [补充店铺宝贝](http://www.one-tab.com/page/7E47989hTR2sjYey6tu2hg)  
-
-![购物清单.jpeg](http://upload-images.jianshu.io/upload_images/254062-d4b3e2de4654d24a.jpeg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)  
