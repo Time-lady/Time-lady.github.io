@@ -187,13 +187,17 @@ https://cse.google.com/cse/home?cx=013876887682380732982:hgcokny4oxu&hl=zh-CN
 [自己收藏的一个豆列](https://www.douban.com/doulist/37937431/)  
 [心水的小物件](https://www.douban.com/doulist/29630654/?start=25&sort=time&sub_type=)  
 [豆瓣东西的喜欢们](https://dongxi.douban.com/people/gougou928/like/shows)  
-### 参考知乎
-^^^^其实看这一个收藏就够了^^^^  
+
+### 参考知乎  
+其实看这一个收藏就够了
+
 [为新家做准备](https://www.zhihu.com/collection/40193589)  
+
 ^^^^     ^^^^^^^     ^^^^  
+
 [国内有哪些独立实木家具设计品牌？](https://www.zhihu.com/question/21340969)   
 [家庭装修时需考虑的人体工程尺寸有哪些？](https://www.zhihu.com/question/25100625)  
-^^^^^  ^^^^  ^^^^  ^^^^  ^^^^  ^^^^  ^^^^  ^^^^  
+
 
 ### 已买过的宝贝  
 [附上购物清单](http://www.one-tab.com/page/Dy6YcBrlTSKSnCKaiwSABw)  
