@@ -120,9 +120,9 @@
 不要以为交代过工头设计师就万事大吉了，最好去现场亲自把要求交代给工人。才不会出错。
 
 * 橱柜以及提前学习准备
-参考[适合中国人的现代厨房是什么样的？](https://www.zhihu.com/question/24114364)和豆瓣豆列 <https://www.douban.com/doulist/2924203/>  
+参考[适合中国人的现代厨房是什么样的？](https://www.zhihu.com/question/24114364)和豆瓣豆列 <https://www.douban.com/doulist/2924203/>
 <https://www.douban.com/doulist/1795422/>
-由于太多了就不一一列出了，去谷歌搜豆列doulist能搜出来一大堆，豆瓣偏图片知乎偏文字。这个至少要提前一年准备，没事就翻翻。  
+由于太多了就不一一列出了，去谷歌搜豆列doulist能搜出来一大堆，豆瓣偏图片知乎偏文字。这个至少要提前一年准备，没事就翻翻。
 [搜豆列点这里>>>>](https://cse.google.com/cse/home?cx=013876887682380732982:hgcokny4oxu&hl=zh-CN)
 
 
