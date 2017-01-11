@@ -35,7 +35,7 @@
 
 * 软装参考
 伽罗生活公众号比较全了，好姿态的绿植和质感窗帘能增色不少。
-推荐一家丝绒布料淘宝店https://shop108540076.taobao.com/shop/view_shop.htm?spm=a1z09.2.0.0.ZIe1ZV&user_number_id=545072408
+推荐一家[丝绒布料淘宝店](https://shop108540076.taobao.com/shop/view_shop.htm?spm=a1z09.2.0.0.ZIe1ZV&user_number_id=545072408)
 沙发套，抱枕，窗帘，桌布，床盖，点缀一下，轻奢风立显
 
 * 水电注意事项
@@ -72,8 +72,8 @@
 * 卫浴五金选择
 单层的看起来整洁，双层的乱  
 推荐几个京东的店铺  
-邦来https://banglai.jd.com/  
-汉派https://hpbchina.jd.com/  
+[邦来](https://banglai.jd.com/)
+[汉派](https://hpbchina.jd.com/)  
 
 * 浴室柜
 80cm的家用够了，但是90以上的更大气。双盆就更棒了。
@@ -134,8 +134,8 @@ https://cse.google.com/cse/home?cx=013876887682380732982:hgcokny4oxu&hl=zh-CN
 有一种叫分体式集成灶，性价比之王。
 
 * 窗帘
-https://cbhe.jiyoujia.com/index.htm 清新田园北欧日式
-别墅土豪请移步https://fanding.tmall.com/index.htm?spm=a220o.1000855.w5002-8525065294.2.bQxCVO
+[清新田园北欧日式](https://cbhe.jiyoujia.com/index.htm )
+[别墅土豪请移步](https://fanding.tmall.com/index.htm?spm=a220o.1000855.w5002-8525065294.2.bQxCVO)  
 黑纱漂亮就是贵
 
 * 洗衣机放哪里
@@ -145,8 +145,7 @@ https://cbhe.jiyoujia.com/index.htm 清新田园北欧日式
 用亚光白，哑光一定要哑光。其实铸铁的耐用人舒服，就是国内的太丑了。没办法碳钢或者铜铝的吧。
 
 * 衣帽间
-板材的味道大+贵。推荐阁室美
-https://geshimei.tmall.com/shop/view_shop.htm?user_number_id=2003901320
+板材的味道大+贵。推荐 [阁室美](https://geshimei.tmall.com/shop/view_shop.htm?user_number_id=2003901320)
 
 * 乳胶漆
 都芳的就可以，芬琳的国内基层处理不平，很难刷的好看，都芳皮实。
@@ -158,8 +157,7 @@ https://geshimei.tmall.com/shop/view_shop.htm?user_number_id=2003901320
 纯色的针织布料或者纯棉，冬天植物羊绒贡品丝绒，夏天天丝或丝绸。
 
 * 装饰画选择
-抽象画，看不懂最好
-https://yidalijiaju.tmall.com/search.htm?search=y
+[抽象画，看不懂最好](https://yidalijiaju.tmall.com/search.htm?search=y)
 荣宝斋的微信公众号也天天有拍卖0元拍。买一幅有收藏价值的画。
 
 ### tips
