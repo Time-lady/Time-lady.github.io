@@ -17,5 +17,3 @@ title: 毕业才是大学真正的开始
 就让我以最近的行动卡片作为结尾,祝同学们在社会大学中继续前行
 <http://www.jianshu.com/p/cdf62e772d79>
 
-<iframe style="width:120px;height:240px;" marginwidth="0" marginheight="0" scrolling="no" frameborder="0" src="https://rcm-cn.amazon-adsystem.com/e/cm?ref=qf_sp_asin_til&t=2280b-23&m=amazon&o=28&p=8&l=as1&IS1=1&asins=B01LY52KDQ&linkId=3ec77e67165844e85877b4cbf2eedc53&bc1=FFFFFF&lt1=_top&fc1=333333&lc1=0066C0&bg1=FFFFFF&f=ifr">
-    </iframe>
