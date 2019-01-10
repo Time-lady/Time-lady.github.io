@@ -27,6 +27,7 @@ layout: default
                         <ul class="actions">
                             <li><a href="{{ page.previous.url }}" class="button">Read More</a></li>
                         </ul>
+                        {% include open-embed.html %}
                     </footer>
                 </article>
             {% endif %}
@@ -44,6 +45,7 @@ layout: default
                         <ul class="actions">
                             <li><a href="{{ page.next.url }}" class="button">Read More</a></li>
                         </ul>
+                    {% include open-embed.html %}
                     </footer>
                 </article>
             {% endif %}
